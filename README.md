@@ -1,4 +1,4 @@
-# Vision Statement
+# Existential Creed
 “Human salvation lies in the hands of the creatively maladjusted.”
 
 -Martin Luther King Jr.
