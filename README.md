@@ -18,3 +18,6 @@ This is for those who see the need for unity in our world, who recognise that we
 The vision of PANGEM is to create a global currency not pegged to any currency, that will not be at the mercy of any country or bank. A currency that will not be affected by trade wars, political wars, and ideological wars. It will be a currency that only needs to rely on the global citizens that use it, and itself, to create and sustain its own stable value.
 
 This vision is for the creatively maladjusted, the crazy, the misfits, the rebels, the troublemakers, the round pegs in the square holes, who understands the need to fight the current status quo of our current world and push the human race forward. Who realise the need for a world currency that is independent of the follies of the few.
+
+
+Please head to the wiki tab for more information.
